@@ -1,4 +1,4 @@
-![CRIME](https://img.buzzfeed.com/buzzfeed-static/static/2016-05/10/6/enhanced/webdr14/original-20692-1462875662-9.png =300x)
+![CRIME](https://img.buzzfeed.com/buzzfeed-static/static/2016-05/10/6/enhanced/webdr14/original-20692-1462875662-9.png =300x300)
 
 # About
 
